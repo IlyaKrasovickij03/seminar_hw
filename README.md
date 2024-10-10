@@ -1,1 +1,1 @@
-# seminar_hw
+# Krasovitskii Ilya
